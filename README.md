@@ -2,7 +2,7 @@
 
 I had a dog
 
-who was so fat.
+who was so hog.
 
 
 He could not even
